@@ -1,1 +1,0 @@
-# Kommunicate-Assessment
